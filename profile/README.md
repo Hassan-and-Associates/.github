@@ -19,7 +19,7 @@
 
 - Notion Site:
 
-[Notion Site](https://www.notion.so/Income-tax-Company-law-and-Business-services-provider)
+[Notion Site](https://www.notion.so/hassanandassociates/Income-tax-Company-law-and-Business-services-provider-in-Bangladesh-5c6284dac36d4278a2e9cc8d8ddcf175)
 
 - Internal Site:
 
@@ -57,7 +57,7 @@
 
 #### Portfolio of the CEO of Hassan & Associates:
 
-[Taxadvisor](https://taxadisor.com.bd)
+[Taxadvisor](https://taxadvisor.com.bd)
 
  
 
