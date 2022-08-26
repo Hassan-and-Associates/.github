@@ -1,4 +1,4 @@
-### We provide services for **income tax**, **company law** and other related **business services**. We are located in **Dhaka, Bangladesh** but we serve clients across the country and all over the world. Our other Business services includes obtaining Trade License, Value Added Tax Registration certificate, Import-Export-Indenting License, Permits. 
+#### We provide services for **income tax**, **company law** and other related **business services**. We are located in **Dhaka, Bangladesh** but we serve clients across the country and all over the world. Our other Business services includes obtaining Trade License, Value Added Tax Registration certificate, Import-Export-Indenting License, Permits. 
 
 
 ## You can also reach us @
